@@ -1,37 +1,38 @@
-## Welcome to GitHub Pages
+## Welcome to Rich Spa Gigolo Jobs Provider Agency
 
-You can use the [editor on GitHub](https://github.com/nisha1142/playboyjobs/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+Male escort jobs in Bangalore Callboy jobs in Bangalore
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+WHATSAAP OR CALL NOW MR KUNAL SETHI 7015854415
 
-### Markdown
+ 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+FULLY SAFE AND CONFIRMED WORK / SAME DAY MEETING AVAILABLE.
 
-```markdown
-Syntax highlighted code block
+ 
 
-# Header 1
-## Header 2
-### Header 3
+male escort jobs / gigolo jobs / callboy jobs FOR PHYSICALLY FIT PERSONS. 
 
-- Bulleted
-- List
+ 
 
-1. Numbered
-2. List
+INSTANT INCOME ON THE SPOT .
+ 
 
-**Bold** and _Italic_ and `Code` text
+FULLY GURANTEED SAFE AND SECURE JOBS .
 
-[Link](url) and ![Image](src)
-```
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+NOTE:- THIS IS NOT A FREE OR TRAIL SERVICE SO TIME PASSER STAY AWAY FROM THIS AD. 
 
-### Jekyll Themes
+ 
+URGENTLY REQUIRED DECENT male escort callboy gigolo in your city . CANDIDATE HAVE GOOD PHYSICAL AND FRESHER / EXPERIENCE CAN JOIN US WITH SERIOUS WORK.
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/nisha1142/playboyjobs/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+ 
 
-### Support or Contact
+EARN RS 23,000 / - FOR FULL NIGHT MEETING AND 10,000 / - FOR DAY MEETING 2-3 HOUR WITH 100% SAFETY AND SECURITY. Assignments with complete security and privacy with hassle free daily cash payments.
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+ 
+
+WE ARE ONE OF THE OLDEST ESCORT AGENCIES GIVING OUR SERVICES TO OUR HIGH PROFILE CLIENTS AS WE PROVIDE COMPLETE SATISFACTION AND SECURITY TO OUR CLIENTS.
+
+ 
+
+WHATSAPP OR CALL RIGHT NOW: - KUNAL SETHI +91-7015854415
